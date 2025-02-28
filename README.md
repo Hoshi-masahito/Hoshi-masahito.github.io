@@ -1,1 +1,0 @@
-# Hoshi-masahito.github.io
